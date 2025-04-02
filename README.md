@@ -1,3 +1,5 @@
-# proyecto del ganso negro
-*** por Diego Alonso Sanchez Mateo**
-martes 01 de abril 
+# Proyecto El Ganso negro
+
+***Por Diego Alonso sanchez mateo**
+
+01 de abril de 2025
